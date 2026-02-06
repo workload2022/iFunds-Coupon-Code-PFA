@@ -1,2 +1,63 @@
-# iFunds-Coupon-Code
-Best IFunds Discount Code
+# iFunds Coupon Codes & Discounts 2025
+
+Welcome to **iFunds Coupon Codes**, your trusted source for the **latest iFunds.io discounts, promo codes, and verified offers**. Save money and maximize your funded trading potential with working iFunds coupons.  
+
+We update our list regularly to ensure you always get the **best deals** on iFunds plans.  
+
+---
+
+## 🔥 Latest iFunds Coupon Codes
+
+| Coupon Code | Offer | Plan |
+|------------|-------|------|
+| **PFA** | Save up to 5% | All Plans |
+| **CT5%** | 5% Discount | All Plans |
+| **CT-INTERN** | 10% Off | Intern Plan ($2,500) |
+| **CT5K** | 10% Off | Starter Plan ($5,000) |
+| **CT10K** | 10% Off | Ambition Plan ($10,000) |
+| **CT-BONUS** | 10% Bonus up to $1,000 | All Plans |
+
+> 💡 Tip: Copy your preferred coupon code and apply it during checkout to instantly save or get bonus funds.  
+
+---
+
+## ⭐ Why Use iFunds Coupons?
+
+- **Verified & Working Codes** – All coupons are tested and verified.  
+- **Instant Savings** – Save up to 10% or get bonus funds.  
+- **Maximize Your Funding** – Increase your trading potential using discounts.  
+- **Always Updated** – Coupon list refreshed frequently with the latest offers.  
+
+---
+
+## 🔗 Featured iFunds Coupon Sites
+
+- [iFunds Coupon](https://www.ifundscoupon.com/) – Trusted and updated iFunds promo codes.  
+- [CouponTerra](https://www.couponterra.com/coupons/ifunds.io) – Verified iFunds.io discount codes.  
+
+---
+
+## 💰 How to Apply iFunds Coupon Codes
+
+1. Choose a plan on [iFunds.io](https://ifunds.io/).  
+2. Copy the coupon code from the table above.  
+3. Paste the code in the promo/coupon field during checkout.  
+4. Enjoy your discount or bonus instantly!  
+
+---
+
+## ⚡ Quick iFunds Deals
+
+- **Save 5% instantly** on all plans – Code: **CT5%**  
+- **Get 10% off** specific plans – Codes: **CT-INTERN, CT5K, CT10K**  
+- **Earn up to $1,000 bonus** on any plan – Code: **CT-BONUS**  
+
+---
+
+### 🔖 SEO Keywords
+
+`iFunds Coupon`, `iFunds Discounts`, `iFunds Promo Code`, `iFunds.io Offers`, `iFunds Discount Codes 2025`  
+
+---
+
+**Start saving today** with these verified iFunds promo codes and make your funded trading journey more profitable!  
