@@ -1,9 +1,10 @@
 # iFunds Coupon Codes & Discounts 2026
 
 Welcome to **iFunds Coupon Codes**, your trusted source for the **latest iFunds.io discounts, promo codes, and verified offers**. Save money and maximize your funded trading potential with working iFunds coupons.  
-
 We update our list regularly to ensure you always get the **best deals** on iFunds plans.  
-Visite [IFunds Website](https://ifunds.io/?ref=0QoazFZ814J8eAEQ)
+
+👉 **iFunds Official Promo Code List**  
+https://www.ifundscoupon.com
 ---
 
 ## 🔥 Latest iFunds Coupon Codes
