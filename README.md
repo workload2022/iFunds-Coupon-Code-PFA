@@ -3,15 +3,15 @@
 Welcome to **iFunds Coupon Codes**, your trusted source for the **latest iFunds.io discounts, promo codes, and verified offers**. Save money and maximize your funded trading potential with working iFunds coupons.  
 
 We update our list regularly to ensure you always get the **best deals** on iFunds plans.  
-
+Visite [IFunds Website](https://ifunds.io/?ref=0QoazFZ814J8eAEQ)
 ---
 
 ## 🔥 Latest iFunds Coupon Codes
 
 | Coupon Code | Offer | Plan |
 |------------|-------|------|
-| **PFA** | Save up to 5% | All Plans |
-| **CT5%** | 5% Discount | All Plans |
+| **PFA** | [Save up to 5%](https://ifunds.io/?ref=0QoazFZ814J8eAEQ) | All Plans |
+| **CT5%** | [5% Discount](https://ifunds.io/?ref=0QoazFZ814J8eAEQ) | All Plans |
 | **CT-INTERN** | 10% Off | Intern Plan ($2,500) |
 | **CT5K** | 10% Off | Starter Plan ($5,000) |
 | **CT10K** | 10% Off | Ambition Plan ($10,000) |
@@ -39,7 +39,7 @@ We update our list regularly to ensure you always get the **best deals** on iFun
 
 ## 💰 How to Apply iFunds Coupon Codes
 
-1. Choose a plan on [iFunds.io](https://ifunds.io/).  
+1. Choose a plan on [iFunds.io](https://ifunds.io/?ref=0QoazFZ814J8eAEQ).  
 2. Copy the coupon code from the table above.  
 3. Paste the code in the promo/coupon field during checkout.  
 4. Enjoy your discount or bonus instantly!  
