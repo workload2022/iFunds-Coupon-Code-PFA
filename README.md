@@ -60,4 +60,8 @@ Visite [IFunds Website](https://ifunds.io/?ref=0QoazFZ814J8eAEQ)
 
 ---
 
+## 06 February 2026
+## iFunds Promo Code Update - Working Fine 
+Verified and working: **PFA, CT5%, CT-INTERN, CT5K, CT10K**   
+
 **Start saving today** with these verified iFunds promo codes and make your funded trading journey more profitable!  
