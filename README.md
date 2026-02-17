@@ -74,7 +74,7 @@ https://ifundscoupon.com
 # Best iFunds Coupon Code 48% Discount - 2026
 I also visited for iFunds Coupons: https://www.couponterra.com/coupons/ifunds.io
 
-# 🎯 iFunds.io Coupon Codes & Deals (2026)
+# 🎯 iFunds.io Discount Codes & Deals (2026)
 
 Looking for **working iFunds.io discount codes**?  
 **ifundscoupon.com** shares the newest and verified promo codes to help traders reduce costs and grow their funded accounts faster.
