@@ -73,3 +73,23 @@ https://ifundscoupon.com
 
 # Best iFunds Coupon Code 48% Discount - 2026
 I also visited for iFunds Coupons: https://www.couponterra.com/coupons/ifunds.io
+
+# 🎯 iFunds.io Coupon Codes & Deals (2026)
+
+Looking for **working iFunds.io discount codes**?  
+**ifundscoupon.com** shares the newest and verified promo codes to help traders reduce costs and grow their funded accounts faster.
+
+## ⭐ Top iFunds Coupon
+**PFA** — Enjoy up to **5% instant discount** on selected plans.
+
+## 💰 Active iFunds Promo Codes
+- **CT5%** – Flat 5% discount on all plans  
+- **CT-INTERN** – 10% OFF Intern Plan ($2,500)  
+- **CT5K** – 10% OFF Starter Plan ($5,000)  
+- **CT10K** – 10% OFF Ambition Plan ($10,000)  
+- **CT-BONUS** – 10% trading bonus (up to $1,000)
+
+## 🔒 Why Trust These Codes?
+- Manually checked & updated  
+- No expired or fake offers  
+- Built for serious traders  
