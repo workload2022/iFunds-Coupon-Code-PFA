@@ -92,4 +92,39 @@ Looking for **working iFunds.io discount codes**?
 ## 🔒 Why Trust These Codes?
 - Manually checked & updated  
 - No expired or fake offers  
-- Built for serious traders  
+- Built for serious traders
+
+# 🚀 Latest iFunds Promo Codes & Coupon Codes (100% Verified)
+
+Searching for a working iFunds promo code?
+We’ve listed the most recent and verified iFunds coupon codes to help traders save instantly on funded account purchases.
+
+🔥 Active iFunds Discount Codes
+
+PFA – Get 5% OFF on all iFunds plans
+
+CT5 – Save 5% OFF on any account size
+
+CT-INTERN – Enjoy 10% OFF the Intern Plan ($2,500)
+
+CT5K – Receive 10% OFF the Starter Plan ($5,000)
+
+CT10K – Get 10% OFF the Ambition Plan ($10,000)
+
+CT-BONUS – Claim up to $1,000 Bonus (10%) on all plans
+
+All iFunds discount codes are regularly checked and updated to ensure they are valid and working.
+
+Before purchasing your funded account, apply the best iFunds coupon code at checkout and maximize your savings.
+
+🔎 Related Searches
+
+iFunds coupon code
+
+iFunds promo code
+
+iFunds discount code
+
+iFunds offers
+
+#propfirm #ifunds #ifundscoupon #ifundsdiscount #ifundsoffers
